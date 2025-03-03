@@ -2,7 +2,7 @@
 <br>
 Sou Produtivo, bem-humorado e decidido, 
 <br>
-sou movido pela paixão em aprender e enfrentar desafios.. 
+Sou movido pela paixão em aprender e enfrentar desafios.. 
 <br>
 Aberto a novas conexões, colaborações e oportunidades de aprendizado. 
 <br>
