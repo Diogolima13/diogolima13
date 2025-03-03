@@ -7,7 +7,7 @@ Sou movido pela paixão em aprender e enfrentar desafios..
 Aberto a novas conexões, colaborações e oportunidades de aprendizado. 
 <br>
 Vamos construir juntos o futuro digital!!!
-
+🚀💻🚀💻
 
 
 <hr>
